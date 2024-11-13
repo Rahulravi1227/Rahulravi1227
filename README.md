@@ -16,7 +16,8 @@ I'm actively looking for roles as a Data Analyst or Business Analyst where I can
  
 📫 Let's Connect
  
- LinkedIn - linkedin.com/in/rahulravi122708
+ LinkedIn - www.linkedin.com/in/rahulravi122708
+ 
  Email - rahulravi1227@gmail.com
 
 <!---
